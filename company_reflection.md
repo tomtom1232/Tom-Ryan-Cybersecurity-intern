@@ -7,7 +7,7 @@ It solves the problem many people face, which is distraction from technology, su
 It blocks distractions on your phone and or computer to help you focus on getting your required tasks done.
 
 Why do you think this mission is important?
-Yes, I believe this mission is very important as ADHD diagnoses are rising there needs to be a solution, and focus bear could be an improvement in many people with ADHD’s lives.
+Yes, I believe this mission is very important as ADHD diagnoses are rising there needs to be a solution, and focus bear could be an improvement in many peoples lives with ADHD.
 
 
 How does Focus Bear’s work align with your personal values or interests?
