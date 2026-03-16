@@ -15,29 +15,22 @@ I have read this guide!
 
 📝 Reflection
 Have you ever experienced or witnessed great teamwork and professionalism? What made it effective?
-
-Yes, I have it made everything go smoothly and fun for everyone involved in the team. 
+Yes, I have it made everything go smoothly and fun for everyone involved in the team.  Things that made it effect was that everyone was profession and did their own fair share of work throughout the semester. 
 What steps can you take to make sure your communication is clear, respectful, and inclusive?
-
-I can use clear and polite language to avoid assumptions. Also making sure that everyone can have an equal contribution to the designated task.
+I can use clear and polite language to avoid assumptions. Also making sure that everyone can have an equal contribution to the designated task. Make sure that I talk up and that others can hear me in stand-ups and in-person working days. 
 How can you help create a positive, fun, and professional work environment?
-
-I can be respectful and supportive to others. Being friendly, reliable and encouraging teamwork this helps create a healthy work environment. 
+I can be respectful and supportive to others. Being friendly, reliable and encouraging teamwork this helps create a healthy work environment. Also joining the team with the daily stand-ups and attend the weekly in-person workstation on Mondays. 
 How can you prepare effectively for meetings with supervisors and colleagues?
-
-I can make sure to ready any emails and make sure I’m up to date with everything. This helps meeting run smoothly. 
+I can make sure to ready any emails and make sure I’m up to date with everything. This helps meeting run smoothly. Also to have any questions or blockers ready to asks for any help and the next steps for the week ahead. 
 What would it look like to be proactive during your internship?
-
-Being productive means asking questions and looking for ways to help out the team. Taking the initiative to learn new skills as well.
-
+Being productive means asking questions and looking for ways to help out the team. Taking the initiative to learn new skills as well. Going to all of the in-person workshops and attending the stand-ups daily to help my work growth and to see what the next tasks are. 
 How might you follow up with colleagues or supervisors if you need information/action from them? How would you escalate it further if you don't get a response and when would you escalate? 
-
-Firstly, I would send a follow up email or reminder after some time if I have not received a response. Then if it becomes urgent, I have the stand ups. 
-
+Firstly, I would send a follow up email or reminder after some time if I have not received a response. Then if it becomes urgent, I have the stand ups. If the last resort would be to call the CEO of Focus Bear and try to solve any issues I have. 
 What are some things you won't do?
-I won’t be disrespectful or ignore feedback. I also won’t communicate in an unprofessional manner. 
+I won’t be disrespectful or ignore feedback. I also won’t communicate in an unprofessional manner. I won’t ignore others feedback and will learn from it and try to be better. 
+
 
 🛠️ Task
 Take note of the CEO's phone number (shared in the onboarding deck) - make contact if you see major breaches of professional conduct or other issuesn
-Yes I have added the CEO phone number to my contacts list. 
+Yes I have added the CEO phone number to my contacts list. Image,![Contact Avatar](https://via.placeholder.com/100x100?text=J)
 
